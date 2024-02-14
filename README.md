@@ -1,4 +1,4 @@
-![HP_pc](https://github.com/Haya0502/myportfolio-ses/assets/100024971/0e426816-fc28-4c46-ac8e-327d6a5cb145)
+![HayaPortfolio](https://github.com/Haya0502/myportfolio-ses/assets/100024971/62bc9431-ca34-472a-94a4-0059e52892ac)
 
 # myportfolio-ses
 
