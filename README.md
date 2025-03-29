@@ -8,8 +8,8 @@ https://hayatech-gh.github.io/myportfolio-ses
 【更新履歴】<br>
 2025/03/29<br>
 URLの修正<br>
-2024/02/14<br>
 <br>
+2024/02/14<br>
 SES案件でポートフォリオ提示のため、掲載写真・掲載情報の変更<br>
 <br>
 2024/01/18<br>
